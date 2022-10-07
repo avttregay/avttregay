@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @avttregay
+- 👀 I’m interested in dick
+- 🌱 I’m currently learning sex
+- 💞️ I’m looking to collaborate on bonding
+- 📫 How to reach me onlyfans
